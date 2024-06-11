@@ -6,6 +6,12 @@ Visit mocktest.gitpustak.com for test series.
 
 Details coming soon.
 
+Instructor onboarding, please fill form below:
+https://forms.gle/3c4NVrhdUtiSdwdX9
+
+NGO profile request, please fill form below:
+https://forms.gle/TGW82hmjgkAjtHmb8
+
 
 **About Us: GitPustak.com – India's No.1 Entrance Exam and Coaching Platform**
 
