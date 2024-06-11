@@ -4,8 +4,6 @@ A comprehensive education platform for all your preparation needs, providing moc
 
 Visit mocktest.gitpustak.com for test series. 
 
-Details coming soon.
-
 Instructor onboarding, please fill form below:
 https://forms.gle/3c4NVrhdUtiSdwdX9
 
